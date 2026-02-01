@@ -69,7 +69,7 @@ To work internationally as a **Data Analyst**, delivering data-driven insights t
 ---
 
 ## 📫 Connect With Me
-- 💼 LinkedIn: *(Add your LinkedIn profile link here)*
+- 💼 LinkedIn: *https://www.linkedin.com/in/srabonshiddhya
 
 ---
 
