@@ -2,7 +2,7 @@
 
 🎯 **Data Analyst | MIS & Automation Specialist**  
 📍 Bangladesh  
-🏢 Assistant Officer – Brand & Communication | DBH Finance PLC
+🏢 Assistant Officer – Data Processing | DBH Finance PLC
 
 ---
 
